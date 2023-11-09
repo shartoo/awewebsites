@@ -77,7 +77,7 @@
 + [12个免费下载PDF电子书的网站](https://www.webhub123.com/#/home/detail?p=5X5vX-PhQK)
 + [知乎高赞集合:中国神话体系梳理](https://www.webhub123.com/#/home/detail?p=5LnME-2ofIu)
 + [25个可以在线玩游戏的网站](https://www.webhub123.com/#/home/detail?p=4DzoY-J4HK)
-+ [20部高分 狙击手 电影阿里云盘下载(https://www.webhub123.com/#/home/detail?p=5CJaw-J4HK)
++ [20部高分 狙击手 电影阿里云盘下载](https://www.webhub123.com/#/home/detail?p=5CJaw-J4HK)
 + [31部全程无尿点爽片 阿里云盘下载](https://www.webhub123.com/#/home/detail?p=4Fdvs-J4HK)
 + [2019年35部高分电影下载和观看地址，包含详细分类和评分](https://www.webhub123.com/#/home/detail?p=1FaXB-J4HK)
 + [网飞-观看时长前10的剧情电视剧](https://www.webhub123.com/#/home/detail?p=1H8yZ-J4HK)
@@ -246,37 +246,11 @@
 #### 3.9 工作商业
 
 + [AI办公利器:22款借助AI提升工作效率的工具推荐](https://www.webhub123.com/#/home/detail?p=4vTWu-3lYrS)
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-+ []()
-
-
-
-
-
-
-
-
-
++ [22个办公必备 PPT 模板资源网站](https://www.webhub123.com/#/home/detail?p=5xaaL-1uxbh)
++ [11个好用的简历模板网站收录](https://www.webhub123.com/#/home/detail?p=1KtJz-1uxbh)
++ [21个 ChatGPT辅助的工具](https://www.webhub123.com/#/home/detail?p=QP9B-3fpAW)
++ [产品经理常逛的27个网站，已按照类别分组](https://www.webhub123.com/#/home/detail?p=1zZrK-1uxbh)
++ [包括ChatGPT，当前最强的17个聊天机器人](https://www.webhub123.com/#/home/detail?p=5qg4G-3lYrS)
++ [OpenAI公司发展史以及CEO访谈以及其影响力14个专访视频](https://www.webhub123.com/#/home/detail?p=3yjJs-1yShn)
++ [17个ChatGPT办公利器网站收录](https://www.webhub123.com/#/home/detail?p=5wjI7-3fpAW)
++ [11个ChatGPT 高效对话-学习使用提示语Prompts](https://www.webhub123.com/#/home/detail?p=1F8qH-3fpAW)
